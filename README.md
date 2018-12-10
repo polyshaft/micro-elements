@@ -3,6 +3,6 @@
 ### Modify By Polyshaft (moddict).
 #### LicenseCC-BY-SA4.0
 
-![img1](https://imgur.com/Za1BpMI)
-![img2](https://imgur.com/qMYUN45)
+![Imgur](https://i.imgur.com/Za1BpMI.jpg)
+![Imgur](https://i.imgur.com/qMYUN45.jpg)
                                    
